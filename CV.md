@@ -57,7 +57,7 @@ Sex:            Female
 --------------------
 
 * December 2015 - today: Committee 'SGW Alphen-Chaam'
-<br /> *Secretary and treasurer*. SGW Alphen-Chaam is an eventing competetion (equestrian)
+<br /> *Secretary and treasurer*. SGW Alphen-Chaam is an eventing competition (equestrian)
 
 
 **Languages**
